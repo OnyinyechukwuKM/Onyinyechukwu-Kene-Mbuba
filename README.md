@@ -17,4 +17,4 @@ This profile is where I document the hands-on technical work I'm building alongs
 | Project | What it demonstrates |
 
 ## Let's connect
-📫 Reach me on [LinkedIn](#) · [Upwork](#)
+📫 Reach me on [LinkedIn](https://www.linkedin.com/in/onyinyechukwu-kene-mbuba/) · [Upwork](https://www.upwork.com/freelancers/~01d593104c58bc3087?mp_source=share)
